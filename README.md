@@ -1,2 +1,2 @@
-# moewpro.github.io
-Personal website
+# moew.cc
+Hi nya~ ฅ(≧ω≦)ฅ ✧ | Website: ✿ moew.cc ✿
